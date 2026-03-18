@@ -1,7 +1,7 @@
 # Lieblingsessen von **Basti** :stuck_out_tongue_winking_eye:
 
 ## Vorspeise :tomato:
-1. Wurstsalat
+1. Ess doch mal was gscheits
 
 ## Hauptspeise :spaghetti:
 1. Nudelauflauf
