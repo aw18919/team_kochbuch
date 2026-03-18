@@ -1,10 +1,10 @@
-# Lieblingsessen von **Philipp** :stuck_out_tongue_winking_eye:
+# Lieblingsessen von **Basti** :stuck_out_tongue_winking_eye:
 
 ## Vorspeise :tomato:
-1. Bruschetta
+1. Wurstsalat
 
 ## Hauptspeise :spaghetti:
-1. Zwiebelrostbraten
+1. Nudelauflauf
 
 ## Nachtisch :cake:
-1. Tiramisu
+1. Currywurst
